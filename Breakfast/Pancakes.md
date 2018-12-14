@@ -14,4 +14,4 @@
 3. Add the wet ingredients to the dry. Using a spatula, fold the ingredients together until just mixed. Stir until few lumps left in mixture. 
 Be careful not to overmix.
 4. Grease griddle and set to medium heat. Once gridle is heated, use 1/3 cup of batter for each pancake. Make sure pancakes are 
-at least 1/3 inch apart. Cook until edges of pancakes are firm, and griddle side is golden. Flip and repeat on oppostie side.
+at least 3/4 inch apart. Cook until edges of pancakes are firm, and griddle side is golden. Flip and repeat on oppostie side.
